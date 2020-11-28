@@ -4,7 +4,8 @@
 
 
 ### The painting of this post is called
-### Mount Kanchenjunga from Darjeeling by Edward Lear Size: 117 x 178 cm.
+### Mount Kanchenjunga from Darjeeling by Edward Lear
+### Size: 117 x 178 cm.
 
 #### According to the gallery label, Henry Bruce (who became Lord Aberdare in 1873),
 #### commissioned Lear to paint "an Indian scene of his own choice" for him when he went out to India.
